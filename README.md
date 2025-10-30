@@ -11,3 +11,4 @@ My profile :)
 - 🏆 Believer in continuous learning, collaboration, and creative problem-solving
 - 💬 Open to discussing AI for business, data storytelling, and innovation consulting
 - 📫 You can reach me on Linkedin: www.linkedin.com/in/marta-martins-mm
+-->
